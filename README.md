@@ -1,4 +1,4 @@
-# jiema
+# 接码
 如何用临时手机号注册Telegram？海外接码平台
 <p>
     Telegram是一款注重隐私的通讯工具，注册时需要手机号验证，但很多人不想使用个人号码，尤其希望使用国外号码以提升隐私或满足特定需求。好消息是，你可以用临时手机号轻松注册Telegram！本文将详细介绍<strong>如何用临时手机号注册Telegram</strong>，<a href="https://jiemapingtai.cc/" target="_self" title="免费接码平台"><strong>免费的接码平台</strong></a>支持国外号码，提供真实可用的步骤，助你快速完成注册。
